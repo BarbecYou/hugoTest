@@ -12,5 +12,7 @@ Megírjuk helyetted a dolgozatot, biztos ötös, kockázat nélkül.
 
 ### Beaadandó készítés
 
+#Lmao
+
 
 
